@@ -1,2 +1,2 @@
 # hello-world
-Tutorial repository
+Donkey Kong is probably the most positive portrayal of black people I've ever seen in video games. He's strong, heroic, caring, but not afraid to get violent when someone tries to disturb the peace on Kongo Bongo. I myself am black, and I've always looked up to Donkey Kong because he's a better role model to me than anyone else in my life has ever been. Kids would make fun of me at school when I ate bananas, or rolled like Donkey Kong, or threw barrels, or wore a red tie, but it didn't matter because Donkey Kong was all I had in my life. Without him, I'd be dead or a drug addicted thug like my brothers.
